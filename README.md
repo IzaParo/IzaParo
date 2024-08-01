@@ -8,3 +8,5 @@ Também estou estudando na a plataforma [Alura](https://www.alurastart.com.br) j
 Se sentirem a vontade me sigam nas redes sociais:
 [@izabelaparo](https://www.instagram.com/izabelaparo/)
 
+![](https://media1.tenor.com/m/YEz2qH1q6XsAAAAC/cheguei-cursinho.gif)
+
